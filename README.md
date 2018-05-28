@@ -1,0 +1,1 @@
+# Informatyka-w-zarz-dzaniu
